@@ -1,4 +1,4 @@
-Code written on Monday which is working  FIRST LINE MODIFY
+Code written on Monday which is working  FIRST LINE MODIFY  BOTH MODIFY THERE
 
 
 Tuesdayl asdkf ;askdfj ;klxv;zx,mvnlsadkjdfkasfd
